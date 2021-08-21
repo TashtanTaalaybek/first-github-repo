@@ -1,2 +1,2 @@
-Lerning git with Seytech students 
+Lsjfdkjaksjfkjas;lfja;ksjferning git with Seytech students 
  TashtanT
